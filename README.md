@@ -1,4 +1,14 @@
-# Me-Myself-and-I.
-I could not really bother making this section pretty, coding skills aren't stuff you pick up in one day, let's say...
+<div align="center">
+  # ⟢ ۫ ׅ 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚖𝚢 𝚙𝚊𝚐𝚎 ۫ ׅ ・・・・・
+  <i> ꕀ۫ ׅ 𝘐'𝘮 𝒎𝒆𝒛𝒛𝒂𝒏𝒐𝒕𝒕𝒆, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘫𝘶𝘴𝘵 𝘤𝘢𝘭𝘭 𝘮𝘦 𝙣𝙤𝙩𝙩𝙚, 𝙠𝙤𝙥𝙞, switz, or just consult my pronouns page for more names! 𓏵 ۫ ׅꕀ <i>
 
-My second strawpage is still a work in progress, especially the first few parts, which are still emptier than the rest. If you've come here from PT (very likely), don't be afraid to whisper me! My wifi is not the best and I will often leave involuntarily, but as soon as I reas the messages, I'll answer! I'm always open to new frienships!!
+  <i> ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ <i>
+
+  <i> ₊⊹◞ 𝙸 𝚌𝚊𝚗 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚋𝚎 𝚏𝚘𝚞𝚗𝚍 𝚘𝚗 𝚙𝚝, 𝚊𝚕𝚘𝚗𝚎 𝚘𝚛 𝚠𝚒𝚝𝚑 𝚏𝚛𝚒𝚎𝚗𝚍𝚜. 𝙳𝚘 𝚗𝚘𝚝 𝚑𝚎𝚜𝚒𝚜𝚝𝚊𝚝𝚎 𝚝𝚘 𝙲 + 𝙷, 𝙸 𝚠𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍 𝚝𝚘 𝚑𝚊𝚟𝚎 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚗𝚎𝚡𝚝 𝚝𝚘 𝚖𝚎! 𝙸 𝚖𝚘𝚜𝚝𝚕𝚢 𝚜𝚝𝚊𝚢 𝚘𝚏𝚏𝚝𝚊𝚋 𝚘𝚛 𝚊𝚏𝚔, 𝚜𝚘 𝚠𝚑𝚒𝚜𝚙𝚎𝚛𝚜   𝚊𝚛𝚎 𝚙𝚛𝚎𝚏𝚎𝚛𝚛𝚎𝚍. 𝙸𝚗𝚜𝚙𝚒𝚛𝚊𝚝𝚒𝚘𝚗 𝚌𝚊𝚗 𝚋𝚎 𝚝𝚊𝚔𝚎𝚗 𝚏𝚛𝚘𝚖 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜, 𝚌𝚘𝚙𝚢𝚒𝚗𝚐 𝚒𝚜 𝚊𝚋𝚜𝚘𝚕𝚞𝚝𝚎𝚕𝚢 𝚗𝚘𝚝 𝚝𝚘𝚕𝚎𝚛𝚊𝚝𝚎𝚍. ⟡ ݁ <i>
+
+
+  <img width="1200" height="164" alt="image" src="https://github.com/user-attachments/assets/3b711626-7eb4-4e79-8e4c-9b98575920b5" />
+
+
+
+
