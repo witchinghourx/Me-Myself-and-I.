@@ -13,7 +13,9 @@
   [![Get to know me on my pronouns page! 🎇](https://img.shields.io/badge/Get_to_know_me_on_my_pronouns_page!-🎇-pink)](https://en.pronouns.page/@thesteamlab)
 
 
-<img width="450" height="450" alt="rwewerwre" src="https://github.com/user-attachments/assets/44953782-d124-470e-8e1c-74fd9b41528f" />
+![chiikawa gif singinginfield](https://github.com/user-attachments/assets/75ef7850-2b2c-4a09-ad28-1cdcf6fb0029)
+
+
 
 
 <i>  ๋ ࣭ ⭑ ࣭ ⭑﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌꒰ ꒱﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ๋ ࣭ ⭑ ࣭ ⭑ <i>
