@@ -1,5 +1,5 @@
 <div align="center">
-<img width="522" height="258" alt="image" src="https://github.com/user-attachments/assets/5c7ddd0f-fd3f-454d-a93e-352987d9d8e2" />
+<img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/5c7ddd0f-fd3f-454d-a93e-352987d9d8e2" />
 
   
   <i> ꕀ۫ ׅ 𝘐'𝘮 𝒎𝒆𝒛𝒛𝒂𝒏𝒐𝒕𝒕𝒆, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘫𝘶𝘴𝘵 𝘤𝘢𝘭𝘭 𝘮𝘦 𝙣𝙤𝙩𝙩𝙚, 𝙠𝙤𝙥𝙞, switz, or just consult my pronouns page for more names!  ׅꕀ <i>
