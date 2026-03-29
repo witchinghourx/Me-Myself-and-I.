@@ -5,9 +5,6 @@
 <img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/7086a321-5da1-43eb-8ae0-f7be4ab28012" /><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/96a40826-5d50-4b94-94c3-fd099521c51b" /><img width="75" height="75" alt="image" src="https://github.com/user-attachments/assets/7524c150-bee5-453b-a7e3-ace92c06fba6" />
 
 
-![gf](https://github.com/user-attachments/assets/77a30903-e1ca-4f8f-a89f-3d47d7fab696)
-
-
   <i> ꕀ۫ ׅ 𝘐'𝘮 𝒎𝒆𝒛𝒛𝒂𝒏𝒐𝒕𝒕𝒆, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘫𝘶𝘴𝘵 𝘤𝘢𝘭𝘭 𝘮𝘦 𝙣𝙤𝙩𝙩𝙚, 𝙠𝙤𝙥𝙞, switz, or just consult my pronouns page for more names!  ׅꕀ <i>
 
   <i>  ๋ ࣭ ⭑ ࣭ ⭑﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌꒰ ꒱﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ๋ ࣭ ⭑ ࣭ ⭑ <i>
@@ -21,6 +18,7 @@
   [![And my second prounouns page ... 📔](https://img.shields.io/badge/And_my_second_pronoun_page_...-📔-pink)](https://pronouns.cc/@mezzanotte)
 [![Follow my ES! ... ☁](https://img.shields.io/badge/Follow_my_ES!-💭-yellow)](https://everskies.com/user/SkyyyNVali-16646366)
 
+![gf](https://github.com/user-attachments/assets/77a30903-e1ca-4f8f-a89f-3d47d7fab696)
 
 
 <i>  ๋ ࣭ ⭑ ࣭ ⭑﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌꒰ ꒱﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ๋ ࣭ ⭑ ࣭ ⭑ <i>
