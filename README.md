@@ -23,9 +23,6 @@
 [![Follow my ES! ... ☁](https://img.shields.io/badge/Follow_my_ES!-💭-yellow)](https://everskies.com/user/SkyyyNVali-16646366)
 
 
-<img width="498" height="315" alt="image" src="https://github.com/user-attachments/assets/910138ec-f54c-4abb-a824-577f61722482" />
-
-
 
 <i>  ๋ ࣭ ⭑ ࣭ ⭑﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌꒰ ꒱﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ๋ ࣭ ⭑ ࣭ ⭑ <i>
 
