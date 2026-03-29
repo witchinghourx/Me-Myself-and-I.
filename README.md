@@ -5,7 +5,7 @@
 <img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/7086a321-5da1-43eb-8ae0-f7be4ab28012" /><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/96a40826-5d50-4b94-94c3-fd099521c51b" /><img width="75" height="75" alt="image" src="https://github.com/user-attachments/assets/7524c150-bee5-453b-a7e3-ace92c06fba6" />
 
 
-  <i> ꕀ۫ ׅ 𝘐'𝘮 𝒎𝒆𝒛𝒛𝒂𝒏𝒐𝒕𝒕𝒆, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘫𝘶𝘴𝘵 𝘤𝘢𝘭𝘭 𝘮𝘦 𝙣𝙤𝙩𝙩𝙚, 𝙠𝙤𝙥𝙞, switz, or just consult my pronouns page for more names!  ׅꕀ <i>
+  <i> ꕀ۫ ׅ 𝕀'𝕞 𝕞𝕖𝕫𝕫𝕒𝕟𝕠𝕥𝕥𝕖! 𝕀 𝕘𝕠 𝕓𝕪 '𝕟𝕠𝕥𝕥𝕖', '𝕜𝕠𝕡𝕚' 𝕠𝕣 𝕪𝕠𝕦 𝕔𝕒𝕟 𝕔𝕠𝕟𝕤𝕦𝕝𝕥 𝕞𝕪 𝕡𝕣𝕠𝕟𝕠𝕦𝕟 𝕡𝕒𝕘𝕖𝕤 𝕗𝕠𝕣 𝕞𝕠𝕣𝕖 𝕟𝕒𝕞𝕖𝕤. 𝔼𝕚𝕥𝕙𝕖𝕣 𝕨𝕒𝕪, 𝕀 𝕨𝕠𝕟'𝕥 𝕘𝕖𝕥 𝕠𝕗𝕗𝕖𝕟𝕕𝕖𝕕 𝕠𝕣 𝕒𝕟𝕪𝕥𝕙𝕚𝕟𝕘   ׅꕀ <i>
 
   <i>  ๋ ࣭ ⭑ ࣭ ⭑﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌꒰ ꒱﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ๋ ࣭ ⭑ ࣭ ⭑ <i>
 
