@@ -13,7 +13,8 @@
 
   [![Decorate my tree! 🎁](https://img.shields.io/badge/Decorate_my_tree!-🎁-pink)](https://colormytree.me/2025/01KD16YQBYKRX29H2PJ9NT6A8H)
   [![Sign my atabook! 🔖](https://img.shields.io/badge/Sign_my_atabook!-🔖-yellow)](https://thesteamlab.atabook.org/)
-  [![Draw on my main strawpage! 🎨](https://img.shields.io/badge/Draw_on_my_main_strawpage!-🎨-pink)](https://clemintine.straw.page/)
+  [![Draw on my main strawpage! 🎨](https://img.shields.io/badge/Draw_on_my_main_strawpage!-🎨-pink)](https://mezzzzanotte.straw.page/)
+  [![And my second strawpage 🎨](https://img.shields.io/badge/And_my_old_strawpage!-🎨-pink)](https://clemintine.straw.page/)
   [![Get to know me on my pronouns page! 🎇](https://img.shields.io/badge/Get_to_know_me_on_my_pronouns_page!-🎇-yellow)](https://en.pronouns.page/@thesteamlab)
   [![And my second prounouns page ... 📔](https://img.shields.io/badge/And_my_second_pronoun_page_...-📔-pink)](https://pronouns.cc/@mezzanotte)
 [![Follow my ES! ... ☁](https://img.shields.io/badge/Follow_my_ES!-💭-yellow)](https://everskies.com/user/SkyyyNVali-16646366)
