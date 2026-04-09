@@ -34,7 +34,7 @@
 
 <i>  ๋ ࣭ ⭑ ࣭ ⭑﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌꒰ ꒱﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ๋ ࣭ ⭑ ࣭ ⭑ <i>
 
-![Profile views](https://komarev.com/ghpvc/?username=witchinghourx)
+![Profile views]((https://github.com/witchinghourx)/Profile_views!-pink/?username=witchinghourx)
 
 
 
