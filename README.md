@@ -34,7 +34,6 @@
 
 <i>  ๋ ࣭ ⭑ ࣭ ⭑﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌꒰ ꒱﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ๋ ࣭ ⭑ ࣭ ⭑ <i>
 
-![Profile views]((https://github.com/witchinghourx)/Profile_views!-pink/?username=witchinghourx)
 
 
 
