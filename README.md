@@ -1,38 +1,17 @@
 <div align="center">
 
-<img width="75" height="75" alt="image" src="https://github.com/user-attachments/assets/b0e82792-de99-4492-a1cb-2a480efe0fcd" />
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/7427a968-2262-4f20-ae52-20b16a9c735c" />
-<img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/7086a321-5da1-43eb-8ae0-f7be4ab28012" /><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/96a40826-5d50-4b94-94c3-fd099521c51b" /><img width="75" height="75" alt="image" src="https://github.com/user-attachments/assets/7524c150-bee5-453b-a7e3-ace92c06fba6" />
+<i> <i>
 
+  [![Color my tree! 🎁](https://img.shields.io/badge/Color_my_tree!-🎁-red)](https://colormytree.me/2025/01KD16YQBYKRX29H2PJ9NT6A8H)
+  [![Sign my atabook! 🔖](https://img.shields.io/badge/Sign_my_atabook!-🔖-red)](https://thesteamlab.atabook.org/)
+  [![Draw on my main strawpage! 🎨](https://img.shields.io/badge/Draw_on_my_main_strawpage!-🎨-red)](https://mezzzzanotte.straw.page/)
+  [![And my second strawpage 🎨](https://img.shields.io/badge/And_my_old_strawpage!-🎨-red)](https://clemintine.straw.page/)
+  [![Get to know me on my pronouns page! 🎇](https://img.shields.io/badge/Get_to_know_me_on_my_pronouns_page!-🎇-red)](https://en.pronouns.page/@thesteamlab)
+  [![And my second prounouns page ... 📔](https://img.shields.io/badge/And_my_second_pronoun_page_...-📔-red)](https://pronouns.cc/@mezzanotte)
 
-  <i> ꕀ۫ ׅ 𝕀'𝕞 𝕞𝕖𝕫𝕫𝕒𝕟𝕠𝕥𝕥𝕖! 𝕀 𝕘𝕠 𝕓𝕪 '𝕟𝕠𝕥𝕥𝕖', '𝕜𝕠𝕡𝕚' 𝕠𝕣 𝕪𝕠𝕦 𝕔𝕒𝕟 𝕔𝕠𝕟𝕤𝕦𝕝𝕥 𝕞𝕪 𝕡𝕣𝕠𝕟𝕠𝕦𝕟 𝕡𝕒𝕘𝕖𝕤 𝕗𝕠𝕣 𝕞𝕠𝕣𝕖 𝕟𝕒𝕞𝕖𝕤. 𝔼𝕚𝕥𝕙𝕖𝕣 𝕨𝕒𝕪, 𝕀 𝕨𝕠𝕟'𝕥 𝕘𝕖𝕥 𝕠𝕗𝕗𝕖𝕟𝕕𝕖𝕕 𝕠𝕣 𝕒𝕟𝕪𝕥𝕙𝕚𝕟𝕘, ... ᵈᵒⁿ'ᵗ ʷᵒʳʳʸ ᵃᵇᵒᵘᵗ ᵗʰᵉˢᵉ ᵗʰⁱⁿᵍˢ ʷⁱᵗʰ ᵐᵉ!   ׅꕀ <i>
+<i>𝐦𝐲 𝐃𝐍𝐈'𝐬 : 𝙱𝚕𝚘𝚌𝚔 𝚖𝚎 𝚊𝚗𝚍 𝚎𝚡𝚙𝚎𝚌𝚝 𝚝𝚘 𝚋𝚎 𝚋𝚕𝚘𝚌𝚔𝚎𝚍 𝚒𝚏 𝚢𝚘𝚞’𝚛𝚎 𝚊 𝚙𝚛𝚘𝚜𝚑𝚒𝚙𝚙𝚎𝚛, 𝚍𝚊𝚛𝚔𝚜𝚑𝚒𝚙𝚙𝚎𝚛, 𝚕𝚘𝚕𝚒/𝚜𝚑𝚘𝚝𝚊, 𝚑𝚘𝚖𝚘𝚙𝚑𝚘𝚋𝚎, 𝚝𝚛𝚊𝚗𝚜𝚙𝚑𝚘𝚋𝚎, 𝚛𝚊𝚌𝚒𝚜𝚝, 𝚃𝚛𝚞𝚖𝚙 𝚜𝚞𝚙𝚙𝚘𝚛𝚝𝚎𝚛, 𝙸𝙲𝙴 𝚜𝚞𝚙𝚙𝚘𝚛𝚝𝚎𝚛, 𝚊 𝚗𝚊𝚣𝚒 𝚘𝚛 𝚊 𝚏𝚊𝚜𝚌𝚒𝚜𝚝, 𝚊 𝚙𝚎𝚍𝚘𝚙𝚑𝚒𝚕𝚎, 𝚣𝚘𝚘𝚙𝚑𝚒𝚕𝚎. 𝙸𝚏 𝚢𝚘𝚞 𝚝𝚑𝚒𝚗𝚔 𝚏𝚒𝚌𝚝𝚒𝚘𝚗 𝚒𝚜𝚗’𝚝 𝚕𝚒𝚗𝚔𝚎𝚍 𝚝𝚘 𝚛𝚎𝚊𝚕𝚒𝚝𝚢 𝚊𝚗𝚍 𝚍𝚘𝚎𝚜𝚗’𝚝 𝚊𝚏𝚏𝚎𝚌𝚝 𝚝𝚑𝚎 𝚕𝚊𝚝𝚝𝚎𝚛 𝚒𝚗 𝚊𝚗𝚢 𝚠𝚊𝚢, 𝚍𝚘 𝚗𝚘𝚝 𝚊𝚙𝚙𝚛𝚘𝚊𝚌𝚑. 𝙸 𝚠𝚘𝚗’𝚝 𝚋𝚎 𝚑𝚘𝚜𝚝𝚒𝚕𝚎 𝚞𝚗𝚕𝚎𝚜𝚜 𝚊𝚝𝚝𝚊𝚌𝚔𝚎𝚍 𝚏𝚒𝚛𝚜𝚝, 𝚎𝚜𝚙𝚎𝚌𝚒𝚊𝚕𝚕𝚢 𝚒𝚏 𝚢𝚘𝚞 𝚛𝚎𝚏𝚛𝚊𝚒𝚗 𝚏𝚛𝚘𝚖 𝚋𝚕𝚘𝚌𝚔𝚒𝚗𝚐 𝚖𝚎 𝚓𝚞𝚜𝚝 𝚝𝚘 𝚊𝚛𝚐𝚞𝚎. 
+𝙰𝚋𝚘𝚞𝚝 𝚑𝚎𝚝𝚊𝚕𝚒𝚊, 𝚑𝚎𝚗𝚌𝚎 𝚝𝚑𝚎 𝚏𝚊𝚗𝚍𝚘𝚖 𝙸’𝚖 𝚌𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢 𝚖𝚘𝚛𝚎 𝚊𝚌𝚝𝚒𝚟𝚎 𝚒𝚗, 𝚝𝚑𝚎𝚜𝚎 𝚙𝚘𝚒𝚗𝚝𝚜 𝚜𝚝𝚒𝚕𝚕 𝚜𝚝𝚊𝚗𝚍: 𝚞𝚜//𝚞𝚔, 𝚜𝚙𝚊//𝚖𝚊𝚗𝚘, 𝚗𝚒//𝚌𝚑𝚞, 𝚌𝚊𝚗//𝚊𝚖𝚎, 𝚛𝚞//𝚋𝚎𝚕𝚊, 𝚛𝚞//𝚞𝚔𝚛, 𝚞𝚔𝚛//𝚋𝚎𝚕, 𝚒𝚝𝚊𝚌𝚎𝚜𝚝, 𝚐𝚎𝚛𝚖𝚊𝚗𝚌𝚎𝚜𝚝, 𝚛𝚘//𝚖𝚘𝚕, 𝚏𝚛𝚊//𝚌𝚊𝚗, 𝚎𝚗𝚐//𝚌𝚊𝚗, 𝚏𝚛//𝚊𝚖𝚎 𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜 𝚊𝚛𝚎𝚗’𝚝 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 𝚊𝚗𝚢𝚠𝚑𝚎𝚛𝚎 𝚗𝚎𝚊𝚛 𝚖𝚎. 𝚂𝚒𝚖𝚙𝚕𝚎 𝚋𝚘𝚞𝚗𝚍𝚊𝚛𝚢: 𝚔𝚎𝚎𝚙 𝚍𝚘𝚒𝚗𝚐 𝚠𝚑𝚊𝚝 𝚢𝚘𝚞 𝚕𝚒𝚔𝚎, 𝚋𝚞𝚝 𝚍𝚘 𝚒𝚝 𝚊𝚜 𝚏𝚊𝚛 𝚊𝚜 𝚙𝚘𝚜𝚜𝚒𝚋𝚕𝚎 𝚏𝚛𝚘𝚖 𝚖𝚎, 𝚝𝚑𝚊𝚗𝚔𝚜. <i>
 
-  <i>  ๋ ࣭ ⭑ ࣭ ⭑﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌꒰ ꒱﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ๋ ࣭ ⭑ ࣭ ⭑ <i>
-
-  <i> ₊⊹◞ 𝙸 𝚌𝚊𝚗 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚋𝚎 𝚏𝚘𝚞𝚗𝚍 𝚘𝚗 𝚙𝚝, 𝚊𝚕𝚘𝚗𝚎 𝚘𝚛 𝚠𝚒𝚝𝚑 𝚏𝚛𝚒𝚎𝚗𝚍𝚜. 𝙳𝚘 𝚗𝚘𝚝 𝚑𝚎𝚜𝚒𝚜𝚝𝚊𝚝𝚎 𝚝𝚘 𝙲 + 𝙷, 𝙸 𝚠𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍 𝚝𝚘 𝚑𝚊𝚟𝚎 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚗𝚎𝚡𝚝 𝚝𝚘 𝚖𝚎! 𝙸 𝚖𝚘𝚜𝚝𝚕𝚢 𝚜𝚝𝚊𝚢 𝚘𝚏𝚏𝚝𝚊𝚋 𝚘𝚛 𝚊𝚏𝚔, 𝚜𝚘 𝚠𝚑𝚒𝚜𝚙𝚎𝚛𝚜   𝚊𝚛𝚎 𝚙𝚛𝚎𝚏𝚎𝚛𝚛𝚎𝚍. 𝙸𝚗𝚜𝚙𝚒𝚛𝚊𝚝𝚒𝚘𝚗 𝚌𝚊𝚗 𝚋𝚎 𝚝𝚊𝚔𝚎𝚗 𝚏𝚛𝚘𝚖 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜, 𝚌𝚘𝚙𝚢𝚒𝚗𝚐 𝚒𝚜 𝚊𝚋𝚜𝚘𝚕𝚞𝚝𝚎𝚕𝚢 𝐧𝐨𝐭 𝐭𝐨𝐥𝐞𝐫𝐚𝐭𝐞𝐝. ⟡ ݁ <i>
-
-  [![Decorate my tree! 🎁](https://img.shields.io/badge/Decorate_my_tree!-🎁-pink)](https://colormytree.me/2025/01KD16YQBYKRX29H2PJ9NT6A8H)
-  [![Sign my atabook! 🔖](https://img.shields.io/badge/Sign_my_atabook!-🔖-yellow)](https://thesteamlab.atabook.org/)
-  [![Draw on my main strawpage! 🎨](https://img.shields.io/badge/Draw_on_my_main_strawpage!-🎨-pink)](https://mezzzzanotte.straw.page/)
-  [![And my second strawpage 🎨](https://img.shields.io/badge/And_my_old_strawpage!-🎨-pink)](https://clemintine.straw.page/)
-  [![Get to know me on my pronouns page! 🎇](https://img.shields.io/badge/Get_to_know_me_on_my_pronouns_page!-🎇-yellow)](https://en.pronouns.page/@thesteamlab)
-  [![And my second prounouns page ... 📔](https://img.shields.io/badge/And_my_second_pronoun_page_...-📔-pink)](https://pronouns.cc/@mezzanotte)
-[![Follow my ES! ... ☁](https://img.shields.io/badge/Follow_my_ES!-💭-yellow)](https://everskies.com/user/SkyyyNVali-16646366)
-
-![gf](https://github.com/user-attachments/assets/77a30903-e1ca-4f8f-a89f-3d47d7fab696)
-
-
-<i>  ๋ ࣭ ⭑ ࣭ ⭑﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌꒰ ꒱﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ๋ ࣭ ⭑ ࣭ ⭑ <i>
-
-
-<i> ꉂ`𝗕𝗮𝘀𝗶𝗰 𝗗𝗡𝗜𝘀: 𝚙𝚎𝚍𝚘𝚙𝚑𝚒𝚕𝚎𝚜, 𝚣𝚘𝚘𝚙𝚑𝚒𝚕𝚎𝚜, 𝚕𝚘𝚕𝚒𝚜/𝚜𝚑𝚘𝚝𝚊𝚜, 𝚏𝚊𝚜𝚌𝚒𝚜𝚝𝚜, 𝚗𝚊𝚣𝚒𝚜𝚝𝚜, 𝚃𝚛𝚞𝚖𝚙 𝚜𝚞𝚙𝚙𝚘𝚛𝚝𝚎𝚛𝚜 𝚊𝚗𝚍 𝚜𝚒𝚖𝚒𝚕𝚊𝚛. 𝙿𝚛𝚘𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜, 𝚍𝚊𝚛𝚔𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜, 𝚙𝚎𝚘𝚙𝚕𝚎 𝚝𝚑𝚊𝚝 𝚝𝚑𝚒𝚗𝚔 𝚏𝚒𝚌𝚝𝚒𝚘𝚗 𝚒𝚜𝚗'𝚝 𝚕𝚒𝚗𝚔𝚎𝚍 𝚝𝚘 𝚛𝚎𝚊𝚕𝚒𝚝𝚢 𝚒𝚗 𝚊𝚗𝚢 𝚊𝚠𝚊𝚢 𝚊𝚗𝚍 𝚍𝚘𝚎𝚜𝚗'𝚝 𝚊𝚏𝚏𝚎𝚌𝚝 𝚝𝚑𝚎 𝚕𝚊𝚝𝚝𝚎𝚛. 𝚃𝚛𝚊𝚗𝚜𝚙𝚑𝚘𝚋𝚎𝚜/𝚑𝚘𝚖𝚘𝚙𝚑𝚘𝚋𝚎𝚜 𝚊𝚗𝚍 𝚛𝚊𝚌𝚒𝚜𝚝𝚜. 𝙳𝚘𝚗'𝚝 𝚋𝚎 𝚠𝚎𝚒𝚛𝚍 𝚝𝚘 𝚖𝚎 𝚒𝚗 𝚐𝚎𝚗𝚎𝚛𝚊𝚕, 𝙸 𝚋𝚕𝚘𝚌𝚔 𝚏𝚛𝚎𝚎𝚕𝚢, 𝚊𝚗𝚍 𝚠𝚘𝚗'𝚝 𝚑𝚎𝚜𝚒𝚝𝚊𝚝𝚎 𝚝𝚘 𝚊𝚛𝚐𝚞𝚎. p.s 𝗜 𝘄𝗶𝗹𝗹 𝗡𝗢𝗧 𝗯𝗲 𝗵𝗼𝘀𝘁𝗶𝗹𝗲 𝘁𝗼𝘄𝗮𝗿𝗱𝘀 𝗽𝗲𝗼𝗽𝗹𝗲 𝗹𝗶𝗸𝗲 𝗽𝗿𝗼𝘀𝗵𝗶𝗽𝗽𝗲𝗿𝘀 / 𝗱𝗮𝗿𝗸𝘀𝗵𝗶𝗽𝗽𝗲𝗿𝘀 𝗯𝘂𝘁 𝗰𝗼𝗺𝗽𝗹𝗲𝘁𝗲𝗹𝘆 𝗮𝘃𝗼𝗶𝗱 𝘁𝗵𝗲𝗺｡ 𝗙𝗶𝗴𝗵𝘁𝘀 𝗮𝗿𝗲 𝘂𝘀𝗲𝗹𝗲𝘀𝘀 𝘀𝗼❟ 𝗶𝗳 𝘆𝗼𝘂 𝗮𝗿𝗲❟ 𝗷𝘂𝘀𝘁 𝗸𝗻𝗼𝘄 𝗜'𝗺 𝗻𝗼𝘁 𝘁𝗵𝗲 𝗳𝗿𝗶𝗲𝗻𝗱 𝘆𝗼𝘂'𝗿𝗲 𝗹𝗼𝗼𝗸𝗶𝗻𝗴 𝗳𝗼𝗿｡<i>
-
-<i> ꉂ`𝗛𝗲𝘁𝗮𝗹𝗶𝗮 𝗗𝗡𝗜𝘀: 𝚄𝚂𝚄𝙺 / 𝚜𝚙𝚊𝚖𝚊𝚗𝚘 / 𝚌𝚊𝚗𝚊𝚖𝚎 / 𝚗𝚒𝚌𝚑𝚞 / 𝚒𝚝𝚊𝚌𝚎𝚜𝚝 / 𝚐𝚎𝚛𝚖𝚊𝚗𝚌𝚎𝚜𝚝 / 𝚛𝚞𝚋𝚎𝚕𝚊 𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜, 𝚊𝚗𝚍 𝚘𝚝𝚑𝚎𝚛𝚜 𝚒𝚖𝚙𝚕𝚒𝚎𝚍 𝚝𝚘 𝚋𝚎 𝚛𝚎𝚕𝚊𝚝𝚎𝚍. 𝙵𝚛𝚊𝚌𝚊𝚗 / 𝙵𝚛𝚊𝚖𝚎 / 𝙴𝚗𝚐𝚌𝚊𝚗 𝚒𝚗𝚌𝚕𝚞𝚍𝚎𝚍, 𝚘𝚛 𝚘𝚗 𝚎𝚡𝚝𝚛𝚎𝚖𝚎𝚕𝚢 𝚝𝚑𝚒𝚗 𝚒𝚌𝚎. <i>
-
-<i> ꉂ`𝗖𝗥 𝗗𝗡𝗜𝘀: 𝚘𝚗𝚕𝚢 𝚊 𝚜𝚙𝚎𝚌𝚒𝚊𝚕 𝚖𝚎𝚗𝚝𝚒𝚘𝚗 𝚏𝚘𝚛 𝙱𝚡𝙰 𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜: 𝙸 𝚑𝚊𝚟𝚎 𝚝𝚛𝚒𝚎𝚍 𝚑𝚊𝚛𝚍 𝚎𝚗𝚘𝚞𝚐𝚑 𝚊𝚕𝚛𝚎𝚊𝚍𝚢 𝚝𝚘 𝚋𝚎 𝚠𝚎𝚕𝚌𝚘𝚖𝚒𝚗𝚐 𝚊𝚗𝚍 𝚞𝚗𝚍𝚎𝚛𝚜𝚝𝚊𝚗𝚍𝚒𝚗𝚐 𝚘𝚏 𝚟𝚊𝚛𝚒𝚘𝚞𝚜 𝚙𝚘𝚒𝚗𝚝𝚜 𝚘𝚏 𝚟𝚒𝚎𝚠. <i>
-
-
-<i>  ๋ ࣭ ⭑ ࣭ ⭑﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌꒰ ꒱﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ๋ ࣭ ⭑ ࣭ ⭑ <i>
 
 
 
