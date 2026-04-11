@@ -24,7 +24,8 @@ ________________________________________________________________________________
 <i> 𝙰𝚋𝚘𝚞𝚝 𝚑𝚎𝚝𝚊𝚕𝚒𝚊, 𝚑𝚎𝚗𝚌𝚎 𝚝𝚑𝚎 𝚏𝚊𝚗𝚍𝚘𝚖 𝙸’𝚖 𝚌𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢 𝚖𝚘𝚛𝚎 𝚊𝚌𝚝𝚒𝚟𝚎 𝚒𝚗, 𝚝𝚑𝚎𝚜𝚎 𝚙𝚘𝚒𝚗𝚝𝚜 𝚜𝚝𝚒𝚕𝚕 𝚜𝚝𝚊𝚗𝚍: 𝚞𝚜//𝚞𝚔, 𝚜𝚙𝚊//𝚖𝚊𝚗𝚘, 𝚗𝚒//𝚌𝚑𝚞, 𝚌𝚊𝚗//𝚊𝚖𝚎, 𝚛𝚞//𝚋𝚎𝚕𝚊, 𝚛𝚞//𝚞𝚔𝚛, 𝚞𝚔𝚛//𝚋𝚎𝚕, 𝚒𝚝𝚊𝚌𝚎𝚜𝚝, 𝚐𝚎𝚛𝚖𝚊𝚗𝚌𝚎𝚜𝚝, 𝚛𝚘//𝚖𝚘𝚕, 𝚏𝚛𝚊//𝚌𝚊𝚗, 𝚎𝚗𝚐//𝚌𝚊𝚗, 𝚏𝚛//𝚊𝚖𝚎 𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜 𝚊𝚛𝚎𝚗’𝚝 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 𝚊𝚗𝚢𝚠𝚑𝚎𝚛𝚎 𝚗𝚎𝚊𝚛 𝚖𝚎. 𝚂𝚒𝚖𝚙𝚕𝚎 𝚋𝚘𝚞𝚗𝚍𝚊𝚛𝚢: 𝚔𝚎𝚎𝚙 𝚍𝚘𝚒𝚗𝚐 𝚠𝚑𝚊𝚝 𝚢𝚘𝚞 𝚕𝚒𝚔𝚎, 𝚋𝚞𝚝 𝚍𝚘 𝚒𝚝 𝚊𝚜 𝚏𝚊𝚛 𝚊𝚜 𝚙𝚘𝚜𝚜𝚒𝚋𝚕𝚎 𝚏𝚛𝚘𝚖 𝚖𝚎, 𝚝𝚑𝚊𝚗𝚔𝚜. ╭ <i> 
 
 
-<img width="307" height="458" alt="image" src="https://github.com/user-attachments/assets/fe9e009b-3daa-429b-9d50-f83ea31c21dc" /><img width="310" height="460" alt="image" src="https://github.com/user-attachments/assets/128871de-6b2e-44df-9260-fc9f49e33b1e" />
+<img width="307" height="458" alt="image" src="https://github.com/user-attachments/assets/fe9e009b-3daa-429b-9d50-f83ea31c21dc" /><img width="736" height="566" alt="image" src="https://github.com/user-attachments/assets/0236a709-8101-4e26-8a6a-9e079e227c28" />
+
 
 
 
