@@ -8,7 +8,6 @@
   [![Draw on my main strawpage! 🎨](https://img.shields.io/badge/Draw_on_my_main_strawpage!-🎨-red)](https://mezzzzanotte.straw.page/)
   [![And my second strawpage 🎨](https://img.shields.io/badge/And_my_old_strawpage!-🎨-red)](https://clemintine.straw.page/)
   [![Get to know me on my pronouns page! 🎇](https://img.shields.io/badge/Get_to_know_me_on_my_pronouns_page!-🎇-red)](https://en.pronouns.page/@thesteamlab)
-  [![And my second prounouns page ... 📔](https://img.shields.io/badge/And_my_second_pronoun_page_...-📔-red)](https://pronouns.cc/@mezzanotte)
 
   
 <img width="776" height="274" alt="image" src="https://github.com/user-attachments/assets/21669207-c0dc-4d81-b66d-24fa5cd633c9" />
