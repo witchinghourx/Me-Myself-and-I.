@@ -19,5 +19,5 @@ I'm absolutely open to making new friends! Whispers are preferred for interactio
 
 [꒰dni list꒱](https://listography.com/1745321793?m=0580652416)
 
-I beg of you to read this before carrying interaction to the next level. DNI goes for people who associate with those traits or actively have friends who do.
+I beg of you to read this before carrying interaction to the next level. DNI goes for people who associate with those traits or actively have friends who do. Not included in the list are yumeshippers: if you're a yume, very specifically a nonsharing Russia yume, for your comfort I discourage interaction. I don't have anything against you, but you should know I talk about him often. 
 
