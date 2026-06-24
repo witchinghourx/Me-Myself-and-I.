@@ -5,10 +5,11 @@
 <i>"ᴛʜᴇʏ ᴀʀᴇ ᴏɴʟʏ ʟᴏᴏᴋɪɴɢ ᴀᴛ ᴛʜᴇ ғᴀᴄᴛs." — ˢʰᵉᵉⁿᵃ ʳⁱⁿᵍᵒ, ᵐᵃ ᶜʰᵉʳⁱᵉ<i>
 
 <i>𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠<i>
+I'm absolutely open to making new friends! Whispers are preferred for interaction, or you can visit the two links below for my ata and straw! (˶˃ᆺ˂˶)
 
  
-  [atabook)](https://snowroshi.atabook.org/)
-  [strawpage](https://mezzzzanotte.straw.page/)
+  [꒰atabook꒱](https://snowroshi.atabook.org/)
+  [꒰strawpage꒱](https://mezzzzanotte.straw.page/)
   
 
   
@@ -16,7 +17,7 @@
 
 <i>𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠<i>
 
-[dni list](https://listography.com/1745321793?m=0580652416)
+[꒰dni list꒱](https://listography.com/1745321793?m=0580652416)
 
 I beg of you to read this before carrying interaction to the next level. DNI goes for people who associate with those traits or actively have friends who do.
 
