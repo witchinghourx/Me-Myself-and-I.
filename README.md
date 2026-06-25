@@ -5,6 +5,7 @@
 <i>"ᴛʜᴇʏ ᴀʀᴇ ᴏɴʟʏ ʟᴏᴏᴋɪɴɢ ᴀᴛ ᴛʜᴇ ғᴀᴄᴛs." — ˢʰᵉᵉⁿᵃ ʳⁱⁿᵍᵒ, ᵐᵃ ᶜʰᵉʳⁱᵉ<i>
 
 <i>𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠<i>
+
 <i>I'm absolutely open to making new friends! Whispers are preferred for interaction, or you can visit the two links below for my ata and straw! (˶˃ᆺ˂˶) ㅤㅤㅤㅤㅤㅤㅤI usually don't stay in one specific spot, but I do have areas that I visit most often!<i>
 
  
