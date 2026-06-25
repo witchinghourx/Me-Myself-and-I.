@@ -23,3 +23,6 @@
 I beg of you to read this before carrying interaction to the next level. DNI goes for people who associate with those traits or actively have friends who do. Not included in the list are yumeshippers: if you're a yume, very specifically a nonsharing Russia yume, for your comfort I discourage interaction. I don't have anything against you, but you should know I talk about him often. 
 
 Things you should know about me: If you're not comfortable with my behaviour once I get close to you, please say so. I don't wish to annoy anyone. It's likely that I'll make lewd jokes, with or without tone tags, and playfully tease my friends. If you're not okay with it, inform me immediately.
+
+<img width="480" height="142" alt="image" src="https://github.com/user-attachments/assets/36247926-2d4b-446a-b9e5-d62299036b62" />
+
