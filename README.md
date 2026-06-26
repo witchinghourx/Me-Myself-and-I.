@@ -11,7 +11,7 @@
  
   [꒰atabook꒱](https://snowroshi.atabook.org/)
   [꒰strawpage꒱](https://mezzzzanotte.straw.page/)
-  
+  [꒰my ponies!꒱](https://mezzzzanotte.straw.page/myponies)
 
   
 <img width="742" height="224" alt="image" src="https://github.com/user-attachments/assets/0ab05cf4-ce86-438c-b40e-59a53e60a273" />
