@@ -11,7 +11,7 @@
  
   [꒰atabook꒱](https://snowroshi.atabook.org/)
   [꒰strawpage꒱](https://mezzzzanotte.straw.page/)
-  [꒰guns!꒱]((https://guns.lol/coffeecivet))
+  [꒰guns!꒱](https://guns.lol/coffeecivet)
   [꒰my ponies!꒱](https://mezzzzanotte.straw.page/myponies)
 
   
